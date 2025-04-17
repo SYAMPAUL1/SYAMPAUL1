@@ -77,7 +77,6 @@ I have **Right to Work in the UK** and am passionate about solving real-world pr
 Drop me a message or connect on LinkedIn!
 
 📧 bondadasyamimmanuelpaul@gmail.com  
-🌍 [Portfolio Coming Soon]  
 🔗 [LinkedIn](https://www.linkedin.com/in/syam-bondada) | [GitHub](https://github.com/SYAMPAUL1)
 
 ---
